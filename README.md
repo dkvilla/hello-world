@@ -1,2 +1,4 @@
 # hello-world
 a whole new world
+
+In West Philedepliha, born and raised. On the play ground is where I spent most of my days. Chilling out, maxing out, relaxing all cool. Shooting some B-ball outside of my school. When a couple of guys who were up to no good, started making trouble in my neighborhood. I got in one little fight, and my mom got scared. She said, "You're moving with your aunty and uncle in Bel-Air." I whistled for a cab, and when it came near, the license plate said "FRESH", and it had dice in the mirror! If anything, I could say that this cab was rare, but I thought, "Nah, forget it. Yo Holmes to Bel-Air!" I pulled up to a house about seven or eight when I yelled to the cabby, "Yo Holmes, smell ya later!" Looked at my kingdom, I was finally there! To sit on my throne as the prince of Bel-Air.
